@@ -1,4 +1,4 @@
-# ピーナッツくん – Small Soldiers
+# ピーナッツくん – Small Soldiers（feat. PUNPEE）
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
